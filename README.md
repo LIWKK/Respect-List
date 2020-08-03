@@ -12,6 +12,8 @@ Mexify - Is annoying but is chill and a nice kid all around, likes to help out w
 
 BVFDora - chad minecraft anticheat manager. 8/10
 
+Johannes - hypocrite, but makes good anticheats and has a high motivation when he starts making something. 8.koira/10
+
 undersquire - Makes hades decent anticheat nice guy and overall a good person to talk to. Inspired by Jonhan. You Suck At Anticheats/10.
 
 retrooper - Codes PacketEvents API, sim0n got on his ass and now he's improving it, respect the grind, codes on his phone too. 10/10
